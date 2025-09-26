@@ -12,7 +12,9 @@ Andrés Felipe Villa Calderón
 Luisa Fernanda Quiroz Garcia   
 
 
-
 Enlace del video en Youtube:
 
 https://www.youtube.com/watch?v=ab3VD3B2tsM&feature=youtu.be
+
+
+[Practica-2.docx](https://github.com/user-attachments/files/22550919/Practica-2.docx)
