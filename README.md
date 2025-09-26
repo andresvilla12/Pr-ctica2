@@ -5,12 +5,10 @@ Alejandra Carvajal Campo
 
 Simon Alejandro Vanegas Ramirez
 
+Luisa Fernanda Quiroz Garcia 
+
 
 Andrés Felipe Villa Calderón
-
-
-Luisa Fernanda Quiroz Garcia   
-
 
 Enlace del video en Youtube:
 
