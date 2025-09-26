@@ -1,9 +1,17 @@
 INTEGRANTES DEL GRUPO:
 
 Alejandra Carvajal Campo
+
+
 Simon Alejandro Vanegas Ramirez
+
+
 Andrés Felipe Villa Calderón
+
+
 Luisa Fernanda Quiroz Garcia   
+
+
 
 Enlace del video en Youtube:
 
